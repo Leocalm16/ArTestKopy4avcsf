@@ -1,1 +1,0 @@
-# ArTestKopy4avcsf
